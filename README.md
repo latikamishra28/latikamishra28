@@ -13,7 +13,7 @@
 
 - 📫 Reach me at **latikamishraa@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1eBzdF27Ez0DY71fTQ9s5J8KUmmTUcTqV/view?usp=sharing](https://drive.google.com/file/d/13IlBVO512RfsxI-Cmla6GV_zBYyoiQtk/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1eBzdF27Ez0DY71fTQ9s5J8KUmmTUcTqV/view?usp=sharing](Latika's Resume)
 
 - ⚡ Fun fact **I make jokes when I am uncomfortable**
 
